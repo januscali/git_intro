@@ -1,1 +1,2 @@
 JanChristopher Calimlim
+calimlij@oregonstate.edu
